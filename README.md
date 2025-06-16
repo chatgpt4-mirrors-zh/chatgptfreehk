@@ -1,6 +1,6 @@
 # chatgpt free hk-chatgpt香港使用免vpn-chatgpt網頁版免費在线中文官网
 
-2025/6/10歡迎蒞臨 **chatgptfree.hk.cn**！這裏為您提供 **ChatGPT** 在香港免 VPN 的免費中文在線服務。只要透過我們的 **ChatGPT網頁版**，您即可隨時隨地暢快體驗 AI 與您對話帶來的無限可能。
+2025/6/16歡迎蒞臨 **chatgptfree.hk.cn**！這裏為您提供 **ChatGPT** 在香港免 VPN 的免費中文在線服務。只要透過我們的 **ChatGPT網頁版**，您即可隨時隨地暢快體驗 AI 與您對話帶來的無限可能。
 
 ---
 
